@@ -1,6 +1,6 @@
 2019年ごろまで利用していました．
 
-![](/unyacat/unya-chan/01-charat.me/original/original.png)
+![](original/original.png)
 
 
 
