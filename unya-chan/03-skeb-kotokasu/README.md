@@ -1,6 +1,6 @@
 2021年ごろから利用しています．
 
-![](edited/bg-blue-1-450796-2-1.png)
+![](edited/cropped.png)
 
 
 
